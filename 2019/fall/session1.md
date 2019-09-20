@@ -10,8 +10,8 @@
 
 ## 詞彙研讀概要
 + 神：神就是愛；住在愛裏面的，就是住在神裏面，神也住在他裏面。
-+ 我們：我們愛，因為神先愛我們。愛比信和望更大 ([林前13:13](https://www.biblegateway.com/quicksearch/?quicksearch=林前13:13&qs_version=CUVMPT)如今常存的有信、有望、有愛這三樣，其中最大的是愛)。
-+ 關係：保羅把仁愛列在聖靈果子的第一，呼應這一段開始的講論（[加5:13](https://www.biblegateway.com/quicksearch/?quicksearch=加5:13&qs_version=CUVMPT)弟兄們，你們蒙召是要得自由，只是不可將你們的自由當做放縱情慾的機會，總要用愛心互相服侍）。我們蒙愛，是結出其他果子的前提（[西3:12](https://www.biblegateway.com/quicksearch/?quicksearch=西3:12&qs_version=CUVMPT) 所以，你們既是上帝的選民，聖潔蒙愛的人，就要存憐憫、恩慈、謙虛、溫柔、忍耐的心。），也是其他果子的聯結（[西3:14](https://www.biblegateway.com/quicksearch/?quicksearch=西3:14&qs_version=CUVMPT) 在這一切之外，要存著愛心，愛心就是聯絡全德的。）
++ 我們：我們愛，因為神先愛我們。愛比信和望更大 ([林前13:13](https://www.biblegateway.com/quicksearch/?quicksearch=林前13:13&qs_version=CUVMPT))。
++ 關係：保羅把仁愛列在聖靈果子的第一，呼應這一段開始的講論（[加5:13](https://www.biblegateway.com/quicksearch/?quicksearch=加5:13&qs_version=CUVMPT)）。我們蒙愛，是結出其他果子的前提（[西3:12](https://www.biblegateway.com/quicksearch/?quicksearch=西3:12&qs_version=CUVMPT)），也是其他果子的聯結（[西3:14](https://www.biblegateway.com/quicksearch/?quicksearch=西3:14&qs_version=CUVMPT)）
 
 ## 經文主題：
 + 約翰藉著神在基督裡的工作所顯明的愛來激勵信徒彼此相愛，從而顯出他們是從神而生，有神同在。
