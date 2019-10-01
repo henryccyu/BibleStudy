@@ -7,9 +7,9 @@
 7 神所賜出人意外的平安，必在基督耶穌裡保守你們的心懷意念。
 
 ## 詞彙研讀概要
-+ 神：耶穌因聖靈感動而喜樂（[路10:21](https://www.biblegateway.com/quicksearch/?quicksearch=路10:21&qs_version=CUVMPT)）耶穌的喜樂存在我們心中（[約15:11](https://www.biblegateway.com/quicksearch/?quicksearch=約15:11&qs_version=CUVMPT)）
-+ 我們：基督徒要靠主喜樂（[腓3:1](https://www.biblegateway.com/quicksearch/?quicksearch=腓3:1&qs_version=CUVMPT)），因為這種喜樂是在聖靈裡的喜樂（[羅14:17](https://www.biblegateway.com/quicksearch/?quicksearch=羅14:17&qs_version=CUVMPT)）喜樂的來源不是環境，而是神。事實上，喜樂可以是在苦難中的（[帖前1:6](https://www.biblegateway.com/quicksearch/?quicksearch=帖前1:6&qs_version=CUVMPT)；[各1:2](https://www.biblegateway.com/quicksearch/?quicksearch=各1:2&qs_version=CUVMPT)）。
-+ 關係：喜樂來自信心和盼望（[羅15:13](https://www.biblegateway.com/quicksearch/?quicksearch=羅15:13&qs_version=CUVMPT)）。
++ 【神】耶穌因聖靈感動而喜樂（[路10:21](https://www.biblegateway.com/quicksearch/?quicksearch=路10:21&qs_version=CUVMPT)）耶穌的喜樂存在我們心中（[約15:11](https://www.biblegateway.com/quicksearch/?quicksearch=約15:11&qs_version=CUVMPT)）
++ 【我們】基督徒要靠主喜樂（[腓3:1](https://www.biblegateway.com/quicksearch/?quicksearch=腓3:1&qs_version=CUVMPT)），因為這種喜樂是在聖靈裡的喜樂（[羅14:17](https://www.biblegateway.com/quicksearch/?quicksearch=羅14:17&qs_version=CUVMPT)）喜樂的來源不是環境，而是神。事實上，喜樂可以是在苦難中的（[帖前1:6](https://www.biblegateway.com/quicksearch/?quicksearch=帖前1:6&qs_version=CUVMPT)；[各1:2](https://www.biblegateway.com/quicksearch/?quicksearch=各1:2&qs_version=CUVMPT)）。
++ 【關係】喜樂來自信心和盼望（[羅15:13](https://www.biblegateway.com/quicksearch/?quicksearch=羅15:13&qs_version=CUVMPT)）。
 
 ## 經文主題：
 + 保羅勉勵信徒知足、謙讓，凡事藉著禱告尋求神，必得屬天平安，活出喜樂的生命。
