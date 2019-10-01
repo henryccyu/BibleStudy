@@ -1,4 +1,4 @@
-# 2019秋季查經第1課 - 仁愛
+# 2019秋季查經第1課 - 仁愛（9/20/2019）
 + [約翰一書4.7-12](https://www.biblegateway.com/quicksearch/?quicksearch=約翰一書4.7-12&qs_version=CUVMPT)
 
 >7 親愛的弟兄啊，我們應當彼此相愛，因為愛是從神來的。凡有愛心的，都是由神而生，並且認識神。    
