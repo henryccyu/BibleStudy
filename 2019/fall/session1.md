@@ -9,9 +9,9 @@
 12 從來沒有人見過神，我們若彼此相愛，神就住在我們裡面，愛他的心在我們裡面得以完全了。
 
 ## 詞彙研讀概要
-+ 神：神就是愛；住在愛裏面的，就是住在神裏面，神也住在他裏面。
-+ 我們：我們愛，因為神先愛我們。愛比信和望更大 ([林前13:13](https://www.biblegateway.com/quicksearch/?quicksearch=林前13:13&qs_version=CUVMPT))。
-+ 關係：保羅把仁愛列在聖靈果子的第一，呼應這一段開始的講論 ([加5:13](https://www.biblegateway.com/quicksearch/?quicksearch=加5:13&qs_version=CUVMPT))。我們蒙愛，是結出其他果子的前提 ([西3:12](https://www.biblegateway.com/quicksearch/?quicksearch=西3:12&qs_version=CUVMPT))，也是其他果子的聯結 ([西3:14](https://www.biblegateway.com/quicksearch/?quicksearch=西3:14&qs_version=CUVMPT))。
++ 【 神 】神就是愛；住在愛裏面的，就是住在神裏面，神也住在他裏面。
++ 【我們】我們愛，因為神先愛我們。愛比信和望更大 ([林前13:13](https://www.biblegateway.com/quicksearch/?quicksearch=林前13:13&qs_version=CUVMPT))。
++ 【關係】保羅把仁愛列在聖靈果子的第一，呼應這一段開始的講論 ([加5:13](https://www.biblegateway.com/quicksearch/?quicksearch=加5:13&qs_version=CUVMPT))。我們蒙愛，是結出其他果子的前提 ([西3:12](https://www.biblegateway.com/quicksearch/?quicksearch=西3:12&qs_version=CUVMPT))，也是其他果子的聯結 ([西3:14](https://www.biblegateway.com/quicksearch/?quicksearch=西3:14&qs_version=CUVMPT))。
 
 ## 經文主題：
 + 約翰藉著神在基督裡的工作所顯明的愛來激勵信徒彼此相愛，從而顯出他們是從神而生，有神同在。
