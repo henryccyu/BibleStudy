@@ -6,7 +6,7 @@
 ## 詞彙研讀概要
 + 【 神 】和平描述物質、身體、精神的安全、完美的安寧，與人與神完全和諧的生活狀態 ([羅15:33](https://www.biblegateway.com/quicksearch/?quicksearch=羅15:33&qs_version=CUVMPT))。
 + 【我們】信徒的和平是建立在基督完成的和解工作的基礎上的 ([西1:20](https://www.biblegateway.com/quicksearch/?quicksearch=西1:20&qs_version=CUVMPT))。所以我們用和平為紐帶來保守合一 ([弗4:3](https://www.biblegateway.com/quicksearch/?quicksearch=弗4:3&qs_version=CUVMPT))。
-+ 平安和喜樂常常在一起 ([羅15:13](https://www.biblegateway.com/quicksearch/?quicksearch=羅15:13&qs_version=CUVMPT))
++ 【關係】平安和喜樂常常在一起 ([羅15:13](https://www.biblegateway.com/quicksearch/?quicksearch=羅15:13&qs_version=CUVMPT))
 
 ## 經文主題：
 + 出於苦毒的嫉妒和紛爭的是假智慧，清潔而和平結出的義果才是真智慧。
