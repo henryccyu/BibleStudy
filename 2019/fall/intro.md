@@ -13,16 +13,16 @@
 + 從講道經文中，是否可以看到聖靈如何幫助一個被福音轉化的生命活出這個屬性（價值定位的改變、肢體關係的改變、品格情感的改變、服事態度的改變）?
 
 ## 系列分題及建議講道經文
-+ 總論（加5:19-25）
-+ 仁愛（約一4:13-21）
-+ 喜樂（腓4:4-7）
-+ 和平（各3:14-18）
-+ 忍耐（各5:7-11）
-+ 恩慈（路6:27-36）
-+ 良善（太19:17-22）
-+ 信實（得1:15-18）
-+ 溫柔（林後10:1-6）
-+ 節制（林前6:12-17） 
++ 總論（[加5:19-25](https://www.biblegateway.com/quicksearch/?quicksearch=加5:19-25&qs_version=CUVMPT)）
++ 仁愛（[約一4:13-21](https://www.biblegateway.com/quicksearch/?quicksearch=約一4:13-21&qs_version=CUVMPT)）
++ 喜樂（[腓4:4-7](https://www.biblegateway.com/quicksearch/?quicksearch=腓4:4-7&qs_version=CUVMPT)）
++ 和平（[雅3:14-18](https://www.biblegateway.com/quicksearch/?quicksearch=雅3:14-18&qs_version=CUVMPT)）
++ 忍耐（[雅5:7-11](https://www.biblegateway.com/quicksearch/?quicksearch=雅5:7-11&qs_version=CUVMPT)）
++ 恩慈（[路6:27-36](https://www.biblegateway.com/quicksearch/?quicksearch=路6:27-36&qs_version=CUVMPT)）
++ 良善（[太19:17-22](https://www.biblegateway.com/quicksearch/?quicksearch=太19:17-22&qs_version=CUVMPT)）
++ 信實（[得1:15-18](https://www.biblegateway.com/quicksearch/?quicksearch=得1:15-18&qs_version=CUVMPT)）
++ 溫柔（[林後10:1-6](https://www.biblegateway.com/quicksearch/?quicksearch=林後10:1-6&qs_version=CUVMPT)）
++ 節制（[林前6:12-17](https://www.biblegateway.com/quicksearch/?quicksearch=林前6:12-17&qs_version=CUVMPT)） 
 
 ## 總論
 從大偉系列說起：仁愛（大衛與約拿單）、喜樂（大衛與約櫃）、和平（大衛的禱告）、忍耐（大衛與示每）、恩慈（大衛不殺掃羅, 大衛與米非波設）、良善（大衛與軍長）、信實（大衛與約拿單）、溫柔（先知拿單指出大衛的罪）、節制（大衛犯姦淫）。
