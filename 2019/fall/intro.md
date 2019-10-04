@@ -14,7 +14,7 @@
 
 ## 系列分題及建議講道經文
 + 總論（[加5:19-25](https://www.biblegateway.com/quicksearch/?quicksearch=加5:19-25&qs_version=CUVMPT)）
-+ 仁愛（[約一4:13-21](https://www.biblegateway.com/quicksearch/?quicksearch=約一4:13-21&qs_version=CUVMPT)）
++ 仁愛（[約一4:13-21](https://www.biblegateway.com/quicksearch/?quicksearch=約壹4:13-21&qs_version=CUVMPT)）
 + 喜樂（[腓4:4-7](https://www.biblegateway.com/quicksearch/?quicksearch=腓4:4-7&qs_version=CUVMPT)）
 + 和平（[雅3:14-18](https://www.biblegateway.com/quicksearch/?quicksearch=雅3:14-18&qs_version=CUVMPT)）
 + 忍耐（[雅5:7-11](https://www.biblegateway.com/quicksearch/?quicksearch=雅5:7-11&qs_version=CUVMPT)）
